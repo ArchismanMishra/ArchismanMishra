@@ -1,5 +1,7 @@
-- 👋 Hi, I’m @ArchismanMishra
-- 👀 I’m interested in Minecraft,Music,Valorant
-- 🌱 I’m currently learning Java
-- 📫 How to reach me | https://dsc.gg/archiplays
+Don't read this. You will waste your time.
+
+- 👋 Hi, I’m @ArchismanM.
+- 👀 I like Minecraft,Music,Valorant
+- 🌱 I’m the Founder of HostEzy 
+- 📫 HostEzy : https://discord.hostezy.xyz
 
